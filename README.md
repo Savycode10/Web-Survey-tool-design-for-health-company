@@ -138,7 +138,7 @@ After data is collected:
 **Dan Saviour** — R & Python Developer
 📍 Lagos, Nigeria
 GitHub: [@Savycode10](https://github.com/Savycode10)
-LinkedIn: [Dan Saviour](https://linkedin.com/in/dan-saviour)
+LinkedIn: [Saviour Dan](https://linkedin.com/in/saviour-dan)
 
 ---
 
